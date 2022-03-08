@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ol1kkk
+- 👀 I’m interested in reading books, coding
+- 🌱 I’m currently learning Java/Python/C++
+- 📫 You can easily reach me with discord </Ol1kk>#7239
